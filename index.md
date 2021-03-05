@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my 3D Modeling portfolio
 
-I'm glad you are here. I plan to talk about ...
+Here you will be able to see some of my past works
